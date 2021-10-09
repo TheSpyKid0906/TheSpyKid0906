@@ -1,4 +1,6 @@
 - 👋 Hi, I’m @TheSpyKid0906 I go by TheSpyKid
+- 🎮 Roblox User: @TheSpyKid0906 (Joins on)
+- 🎮 Minecraft User: MarioMe5915
 - 👀 More to Come
 
 <!---
